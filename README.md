@@ -38,11 +38,6 @@ The Mandela Effect refers to instances where a large number of people remember s
 - **Reality**: He was released and became South Africa's president, dying in 2013
 - **Origin**: What coined the term itself
 
-### 5. **The Berenstein Bears Spelling**
-- **False Memory**: "Berenstein"
-- **Reality**: "Berenstain"
-- **Psychological Angle**: Spelling correction by our brains' autocorrect functions
-
 ## 🧠 Psychological Explanations
 
 ### Confabulation
